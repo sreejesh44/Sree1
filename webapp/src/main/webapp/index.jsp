@@ -1,1 +1,1 @@
-Wecome to intelliq 326
+Wecome to intelliq 27 OCT
