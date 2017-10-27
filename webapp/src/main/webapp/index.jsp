@@ -1,1 +1,1 @@
-Wecome to intelliq 27 OCT
+Wecome to intelliq 27/28
